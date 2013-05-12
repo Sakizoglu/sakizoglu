@@ -1,4 +1,0 @@
-sakizoglu
-=========
-
-Sakızoğlu Grup İnşaat
